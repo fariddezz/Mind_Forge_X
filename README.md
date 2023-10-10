@@ -1,2 +1,4 @@
 # Mind_Forge_X
 Prototipo de la WEB
+
+https://miro.com/welcomeonboard/d2Z4TFQzck96d2dCNHQ1a1dNREk1WnVDSWY0ZGE3Q1d3RVh5NkRZQ041bm5ZVHpyNEZJNlFsVHJnWjMxWUlTZXwzNDU4NzY0NTI2MjkwNTExNjI5fDI=?share_link_id=707360480120
